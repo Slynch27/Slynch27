@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Slynch27
+- 👋 Hi, I’m @Slynch27. 
 - 👀 I’m interested in anything related to the outdoors
-- 🌱 I’m currently learning through TOP (The Odin Project) 
+- 🌱 After 10+ years in the education field I desperate to make a career change. After relentless research I landed on the Odin project which I hope will        help open doors and pave the way to a new an exciting career.  
 - 💞️ I’m looking to collaborate on many things once I start getting to know more
 - 📫 How to reach me sarah-lynch@hotmail.com
 
