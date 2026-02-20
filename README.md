@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Slynch27. 
 - 👀 I’m interested in anything related to the outdoors
-- 🌱 Transitioning teacher looking for an exiting new career.  
+- 🌱 Transitioning teacher looking for an exciting new career.  
 - 💞️ I’m looking to collaborate on many things and expand my knowledge. 
 - 📫 How to reach me sarah-lynch@hotmail.com
 
